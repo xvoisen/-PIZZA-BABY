@@ -8,3 +8,9 @@
 
 
                           Elliot  forever  
+
+
+
+
+<img width="588" height="330" alt="17843287498253948681318057668697" src="https://github.com/user-attachments/assets/e9b4bccb-d5ac-4301-8d16-208a96968b46" />
+
